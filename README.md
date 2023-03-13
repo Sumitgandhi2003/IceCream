@@ -1,1 +1,1 @@
-# IceCream
+# Ice-Cream
